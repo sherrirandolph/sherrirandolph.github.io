@@ -1,2 +1,0 @@
-# sherrirandolph.github.io
-Website
